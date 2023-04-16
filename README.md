@@ -1,2 +1,12 @@
 # Godoro
 ![1](https://user-images.githubusercontent.com/79314460/232338798-5b39d9d8-3454-4603-8c20-8e798c33adf3.png)
+![2](https://user-images.githubusercontent.com/79314460/232338819-4e6d189a-2721-4f4e-a840-350bbe8fab6d.png)
+![3](https://user-images.githubusercontent.com/79314460/232338820-93e1274a-b4ca-45c4-bce6-0e9da5cb1750.png)
+![4](https://user-images.githubusercontent.com/79314460/232338822-c5ef8375-658c-4cf9-a0e9-c567e174801c.png)
+![5](https://user-images.githubusercontent.com/79314460/232338825-a412bad2-e1a2-42f3-9224-cded9aae1e47.png)
+![6](https://user-images.githubusercontent.com/79314460/232338832-a2c8fd2f-4265-46e5-afa2-1ebdb0e40f01.png)
+![7](https://user-images.githubusercontent.com/79314460/232338834-c2c68fb2-6237-4fce-a490-5e6e55feccaa.png)
+![8](https://user-images.githubusercontent.com/79314460/232338838-f70f219b-ec49-4b96-b394-8dbcfcd3f2e4.png)
+![9](https://user-images.githubusercontent.com/79314460/232338843-ca53468d-d9ce-403f-af91-d0754856ffb5.png)
+![10](https://user-images.githubusercontent.com/79314460/232338847-96090dbd-8ba0-4a94-a3f0-69cb7dfa257a.png)
+![11](https://user-images.githubusercontent.com/79314460/232338849-55a9a283-969a-4002-9438-5439725df036.png)
